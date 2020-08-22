@@ -1,1 +1,1 @@
-# GitHub PAges
+# GitHub Pages
